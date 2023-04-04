@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hey yo everyone, I’m Sergei a Computer Science student/creator/sports dude/optimist!<br>👀 I’m interested in creating cool things, talking to people amd expolre new<br>💞️ I’m looking to collaborate on creating different cool projects which will help people to keep smiling and solve their day by day problems/<br>
+👋 Hey yo everyone, I’m Sergei a Computer Science student/creator/sports dude/optimist!<br>👀 I’m interested in creating cool things, talking to people amd expolre new<br>🐈 I’m looking to collaborate on creating different cool projects which will help people to keep smiling and solve their day by day problems/<br>
 
 
 ## 🌐 Socials:
